@@ -9,3 +9,5 @@ meu nome é eloísa Cristina
 -esse perfil é pra me ajudar a organizar o meus projetos 
 
 você pode entrar em contato comigo 🤙🏽
+
+![](https://media1.tenor.com/m/CiJuhjUFaeIAAAAC/gojo-satoru-jujutsu-kaisen.gif)
